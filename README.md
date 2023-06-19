@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Cole-The-Coder
 - 👀 I’m interested in getting a job :)
-- 🌱 I’m currently learning how to adult xD
 - 💞️ I’m looking to collaborate on a fun new project
 - 📫 How to reach me ----> colewtynan@gmail.com
 
